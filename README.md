@@ -1,0 +1,4 @@
+- oi eu sou eduarxda ...
+- estou interessado em aprender a programar 
+- estou aprendendo muitas coisas 
+- estou procurando colaborar com o professor 
